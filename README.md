@@ -1,0 +1,2 @@
+# Abdul
+Mencoba lebih baik
